@@ -9,3 +9,5 @@ Github: you are literally reading this on github
 [Steam: dxfnity](https://steamcommunity.com/id/dxfnity)
 </br>
 and idk what is else.. uhh
+</br>
+Taking HarvardX - CS50cy :) [(Course Page - edX)](https://www.edx.org/learn/cybersecurity/harvard-university-cs50-s-introduction-to-cybersecurity)
