@@ -1,6 +1,6 @@
 Hey there! I am @dxvC0des. Follow me here!
 <br/>
-[Email: dxv.public@mail.dxvprojects.org](mailto:dxv.public@mail.dxvprojects.org)
+[Email: github.pub@codingfr.com](mailto:github.pub@codingfr.com)
 <br/>
 Discord: dxfnity (dxv)
 <br/>
